@@ -1,3 +1,5 @@
+<img src="https://tse3.mm.bing.net/th?id=OIP.rkECdRC67UGcjRH048zt7gHaD-&pid=Api&P=0&w=313&h=168" width="520" height="374" />
+                                                                                                        
 # Manjares Navideños
 ## Guineitos en escabeche
 ### Ingredientes
@@ -15,3 +17,8 @@
 - Pimienta en grano 1 1/2 cucharadita
 - 1 cebolla amarilla extra grande picada en rodajas o medias rodajas o 1 1/2 cebollas tamaño grande
 - 1 cucharada de pimiento morrón en tiras
+### Procedimientos:
+- 1.Hervir los guineos con mucha agua, sal y leche.
+- 2. Después separar los guineos y corto la punta de los guineos con la punta de el cuchillo y esperas hasta que esten listo y  van a salir blanquitos.
+### Referencias 
+https://ensalpicadas.com/receta-de-guineos-en-escabeche-estilo-puertorriqueno/       
