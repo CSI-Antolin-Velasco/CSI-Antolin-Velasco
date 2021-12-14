@@ -22,8 +22,10 @@
 - 1 cebolla amarilla extra grande picada en rodajas o medias rodajas o 1 1/2 cebollas tamaño grande
 - 1 cucharada de pimiento morrón en tiras
  ### Procedimientos:
-- 1.Hervir los guineos con mucha agua, sal y leche.
-- 2. Después separar los guineos y corto la punta de los guineos con la punta de el cuchillo y esperas hasta que esten listo y  van a salir blanquitos.
+ 1. Hervir los guineos con mucha agua, sal y leche.
+ 2. Separar los guineos.
+ 3. Corto la punta de los guineos con la punta del cuchillo.
+ 4. Esperas hasta que esten listo y  van a salir blanquitos.
  ### Referencias 
  https://ensalpicadas.com/receta-de-guineos-en-escabeche-estilo-puertorriqueno/       
  ### Video:
