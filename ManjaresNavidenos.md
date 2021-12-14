@@ -4,7 +4,7 @@
                                                                                                         
 # Manjares Navideños
 ## Guineitos en escabeche
-0999</div>
+</div>
   
   ### Ingredientes
 - 3-5 libras de guineos verdes
